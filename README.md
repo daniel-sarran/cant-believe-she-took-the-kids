@@ -1,3 +1,3 @@
 # cant-believe-she-took-the-kids
 
-by kev and dev
+by kev and dan
